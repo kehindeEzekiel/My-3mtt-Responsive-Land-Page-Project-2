@@ -1,1 +1,1 @@
-# My-3mtt-Responsive-Land-Page-Project-2
+# My-3mtt-Responsive-Landing-Page-Project-2
